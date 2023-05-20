@@ -14,7 +14,7 @@ A aprovação do cadastro será completada em até 24 horas após a inscrição.
 
 ## 4. Vantagens
 
-Os membros do Clube de Vantagens Benner Supermercado terão acesso a descontos exclusivos e serão automaticamente inscritos em sorteios mensais. Os detalhes dos descontos e sorteios serão comunicados aos membros por e-mail e/ou WhatsApp.
+Os membros do Benner Mais terão acesso a descontos exclusivos e serão automaticamente inscritos em sorteios mensais. Os detalhes dos descontos e sorteios serão comunicados aos membros por e-mail e/ou WhatsApp.
 
 ## 5. Resgate de Vantagens
 
@@ -30,7 +30,7 @@ A Benner Supermercado respeita a privacidade de seus membros. As informações p
 
 ## 8. Termos e Condições
 
-A Benner Supermercado se reserva o direito de alterar os termos e condições do Benner Mais a qualquer momento. Qualquer mudança será notificada aos membros com antecedência razoável.
+O Benner Supermercado se reserva o direito de alterar os termos e condições do Benner Mais a qualquer momento. Qualquer mudança será notificada aos membros com antecedência razoável.
 
 ## 9. Cancelamento de Membros
 
